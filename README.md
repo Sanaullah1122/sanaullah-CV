@@ -1,4 +1,4 @@
-# sanaullah-CV
+
 # Sana Ullah
 📍 Khyber Pakhtunkhwa, Pakistan  
 📧 sanaullah0307@gmail.com | sanamore100@gmail.com  
