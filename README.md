@@ -99,7 +99,7 @@ Since 2017, I have been serving as an IT teacher in the KPESE department, follow
 
 ## 📫 Contact
 - **Email:** [sanaullah0307@gmail.com](mailto:sanaullah0307@gmail.com) | [sanamore100@gmail.com](mailto:sanamore100@gmail.com)  
-- **GitHub:** [https://github.com/sanaullah](https://github.com/sanaullah)  
+- **GitHub:** [https://github.com/Sanaullah1122/sanaullah-CV/blob/main/README.md)  
 
 ---
 
