@@ -2,8 +2,6 @@
 
 ![Profile Image](profile.jpg)
 
-**MS Computer Science | M.Ed | B.Ed | IT Educator & IoT Developer**  
-
 ---
 
 ## 📌 Personal Information
