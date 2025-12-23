@@ -1,6 +1,7 @@
 # Sana Ullah - CV
 
-![Profile Image](profile.jpg)
+[![Profile Image](profile.jpg)](https://github.com/sanaullah/cv/raw/main/profile.jpg
+)
 
 ---
 
