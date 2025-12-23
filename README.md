@@ -2,7 +2,7 @@
 # Sana Ullah
 📍 Khyber Pakhtunkhwa, Pakistan  
 📧 sanaullah0307@gmail.com | sanamore100@gmail.com  
-🔗 GitHub: https://github.com/your-username  
+🔗 GitHub: https://github.com/Sanaullah1122/sanaullah-CV
 
 ---
 
